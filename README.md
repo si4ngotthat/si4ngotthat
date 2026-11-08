@@ -1,7 +1,7 @@
 <p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/a2b51af9d2a673f5a3e23dfc6c325ce4f3e9c01f/Untitled45_20261108102001.png"width="550"> </p>
-<p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/a2b51af9d2a673f5a3e23dfc6c325ce4f3e9c01f/Untitled47_20261107232859.png"width="550"> </p>
+<p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/9548f28f8b3a55a8dfa90dc255523cd59c2bc03e/Untitled47_20261107232859.png"width="550"> </p>
 <p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/a2b51af9d2a673f5a3e23dfc6c325ce4f3e9c01f/Untitled49_20261107232441.png"width="550"> </p>
-<p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/2ef74a43ab4651d54a51bee1e274962d925917bc/Untitled47_20261107232841.png"width="550"> </p>
+<p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/9548f28f8b3a55a8dfa90dc255523cd59c2bc03e/Untitled47_20261107232841.png"width="550"> </p>
 
 
 <p align= "center">⭑ sianㅤ ˘ ㅤsinㅤ.ㅤthey / them ᛝ </p>
