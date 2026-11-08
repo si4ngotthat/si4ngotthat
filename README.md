@@ -8,7 +8,7 @@
 
 <p align= "center">⸜ ⸜ㅤ@sukuna understanderㅤ+ㅤfictkin </p>
 
-<p align= "center">⌣ he's literally me ok? (•⸝⸝⸝•꧞) </p>
+<p align= "center">⌣ he's literally me ok? (｀▽´) </p>
 
 <p align= "center">ㅤ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ </p>
 
