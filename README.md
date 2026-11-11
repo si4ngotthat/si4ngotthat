@@ -4,7 +4,7 @@
 <p align= "center"> <img src="https://github.com/si4ngotthat/si4ngotthat/blob/9548f28f8b3a55a8dfa90dc255523cd59c2bc03e/Untitled47_20261107232841.png"width="550"> </p>
 
 
-<p align= "center">⭑ sian ˘ sin ˘ yi ˘ nesㅤ.ㅤthey / them ᛝ </p>
+<p align= "center">⭑ sian ˘ sin ˘ yiㅤ.ㅤthey / them ᛝ </p>
 
 <p align= "center">⸜ ⸜ㅤ@sukuna understanderㅤ+ㅤfictkin </p>
 
